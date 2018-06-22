@@ -9,8 +9,9 @@ DUHHHHHHHHHHHHHHHHHHHHHHHH
 So, a skeleton walks into a bar. He says to the bartender "I'd like a shot of whiskey... and a mop."
 Schrodinger's Cat walks into a bar... and he *doesn't*. 
 
-I really wish Alice wasn't working with me. She smells like ass.
+I really wish Alice wasn't working with me. She smells like cheese. 
 
 <!-- Carol and Ted added another FEATURE  -->
 Chuh chuch chuch chuh changes! 
 
+Boom its friday
