@@ -11,3 +11,4 @@ Schrodinger's Cat walks into a bar... and he *doesn't*.
 
 I really wish Alice wasn't working with me. She smells like ass.
 
+Boom its friday
